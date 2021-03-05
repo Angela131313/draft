@@ -1,6 +1,6 @@
 #Anzhela Staravoitava
 ###+375 29 523-89-07 (A1)
-####antares71@gmail.com
+###antares71@gmail.com
 #####Brest, Republic of Belarus
 |                  | **Education** |             |
 :-----------------|:--------------:|-------------:
